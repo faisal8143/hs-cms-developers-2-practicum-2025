@@ -1,0 +1,1 @@
+# hs-cms-developers-2-practicum-2025
